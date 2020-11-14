@@ -14,11 +14,11 @@ I work at IdeaRoom Technologies where we specialize in creating customizable, vi
 
 This technology has enabled these dealers to be more complete in their presentation to their customers especially in the virtual realm we now live in today and their clients trust that their buildings will be the same as they are virtually. And with companies exhibiting a commitment to the virtual lifestyle forced by the pandemic through practices such as hiring "Heads of Remote work" and finding software that creates digital models of an officespace for their employees to virtually interact with one another in, the future of digital modeling has never been more important to understand than now<sup>3</sup>.
 
-Sources: \
+Sources: 
 
-1: https://www.digitalcommerce360.com/2019/03/26/millennials-online-shopping/   \
+1: https://www.digitalcommerce360.com/2019/03/26/millennials-online-shopping/   
 
-2: https://www.homelight.com/blog/buyer-can-you-buy-a-house-online/   \
+2: https://www.homelight.com/blog/buyer-can-you-buy-a-house-online/   
 
-3: https://www.washingtonpost.com/business/2020/09/09/head-of-remote-work-jobs/   \
+3: https://www.washingtonpost.com/business/2020/09/09/head-of-remote-work-jobs/   
 
