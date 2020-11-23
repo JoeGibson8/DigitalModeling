@@ -1,4 +1,3 @@
-Official Link: https://joegibson8.github.io/DigitalModeling/
 ## Digital Modeling And Its Role In Our Digital World
 # Joe Gibson
 
